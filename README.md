@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="https://www.icegif.com/wp-content/uploads/naruto-icegif-45.gif"  />
+<img align="right" height="150" src="https://media.tenor.com/ypmmzSRT2okAAAAd/jokowi.gif"  />
 
 ###
 
